@@ -1,3 +1,6 @@
-# play8
+# SUBSCRIBE TO THIS WEB NOW!
 
-cooming soon
+.
+
+To subscribe this web write to: satvikking24@gmail.com
+and fill you details 
